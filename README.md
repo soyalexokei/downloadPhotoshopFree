@@ -4,7 +4,7 @@
 
 Para tener Adobe Photoshop totalmente gratis, debes descargarlo en el siguiente link:
 
-https://drive.google.com/file/d/14ZXJh1J0LylPXJpkWE0EZ1f6h06PdZzm/view?usp=share_link
+https://drive.google.com/file/d/14ZXJh1J0LylPXJpkWE0EZ1f6h06PdZzm/view?usp=sharing
 
 Pasos a seguir:
 
